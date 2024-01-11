@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on everything it is on my possibilities
 - 📫 How to reach me fernando.o.cunha@hotmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: no idea what tech is....
+- ⚡ Fun fact: no idea what tech is, but I'm here....
 
 <!---
 Fcunha70/Fcunha70 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
